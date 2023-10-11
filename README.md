@@ -1,0 +1,5 @@
+- Hi, I’m @ReginaldCosmic
+- I’m interested in Pokemon and Sonic the Hedgehog and Super Mario.
+- I’m currently learning C as well as Object Oriented Design
+- You can find me at reginaldcosmic(at)bsky.social and @ReginaldCosmic on Twitter
+- My YouTube channel is @ReginaldCosmic
